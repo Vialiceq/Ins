@@ -15,4 +15,6 @@ dont break the rule in your region!
 
 once you  use these , it means you agree the principle AND these have nothing to do with me anymore!
 
-We reserve all the right for the final explanation！
+The code is from the https://github.com/Siujoeng-Lau 
+
+we reserve all the right for the final explanation！
