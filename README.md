@@ -13,6 +13,6 @@ principle
 plz use in the good area !
 dont break the rule in your region!
 
-if you  use these , it means you agree the principle AND these have nothing to do with me!
+once you  use these , it means you agree the principle AND these have nothing to do with me anymore!
 
-
+We reserve all the right for the final explanation！
